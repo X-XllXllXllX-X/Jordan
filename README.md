@@ -1,2 +1,1 @@
-# Jordan
-Hi I'm looking for friends I play PlayStation ® and Xbox ™
+https://www.facebook.com/groups/257177367325430/?ref=share
